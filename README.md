@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @RaffKonpiutaHackaMan7064
+- 👀 I’m interested in making videogames and work in what I love, coding
+- 🌱 I’m currently learning programming
+- 💞️ I’m looking to collaborate on everyting I want and can!
+- 📫 If you want to contact me heres mi discord : rAff#3170 (sometimes I change my username)
+- 🇲🇽 M-E-X-I-C-A-N
